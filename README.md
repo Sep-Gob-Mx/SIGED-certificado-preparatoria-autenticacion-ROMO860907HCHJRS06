@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-ROMO860907HCHJRS06
+ROMO860907HCHJRS06
